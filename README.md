@@ -1,2 +1,0 @@
-# dalitsokalondo
-Explore my work
